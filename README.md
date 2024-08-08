@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Lara
 - 💞️ I’m looking to collaborate with Lara
 - 📫 How to reach me: Pls contact Lara
-- 😄 Pronouns: Guess
+- 😄 Pronouns: Lara's Husband 
 - ⚡ Fun fact: I love Lara
 
 <!---
